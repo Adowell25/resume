@@ -1,4 +1,4 @@
-# resume
+# Resume
 Objective 
 Motivated, personable, and ambitious professional with a robust ability to collaborate with various business professionals across all levels. I am flexible and versatile with the ability to remain level headed throughout high pressure situations.  
 Skills Summary
